@@ -1,7 +1,4 @@
 # Project-1
 This is my project
 Technology
-princyyyybabbbyyyy
-amoghhhh
 
-princyamoghie
